@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sedowning13
+- 👋 Hi, I’m @sedowning13 (Sarah Downing)
 - 👀 I’m interested in books/literature, music, art, history and video gaming.
 - 🌱 I’m currently learning all things programming...trying to get into a better career in tech!
 - 💞️ I’m looking to collaborate on everything. I want to learn as much as I can.
